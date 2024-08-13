@@ -10,4 +10,4 @@ Você pode entrar em contato comigo 📫
 
 00001097818573sp@al.educacao.sp.gov.br 
 
-![](https://images.app.goo.gl/dZxmpDZt6WfvptfJ6)
+ ![](https://images.app.goo.gl/dZxmpDZt6WfvptfJ6)
